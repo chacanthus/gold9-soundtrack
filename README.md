@@ -1,5 +1,5 @@
 # gold9-soundtrack
-Soundtrack of Golden Castle Nine (Random combination game) in South Korea
+Soundtrack of Golden Castle Nine (Castle styled slot game) in South Korea
 
 # Help to you
 If you have gambling problems, you can contact this centers.
